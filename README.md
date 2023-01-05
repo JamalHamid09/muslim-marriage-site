@@ -1,4 +1,4 @@
-The Mahr in Islam: What It Is and Why It Matters
+The Mahr in Islam: What It Is and Why It Matters https://noblemarriage.com/
 
 Mahr in Islam is a custom and an obligation. It is practiced in marriage ceremonies. It is basically, a portion of the money or can be any other worthy item that the groom is liable to his bride. Though there is not a definite amount or quantity of a product but it can be decided on a customary basis. The amount may differ based on a groom’s financial position and location. But it is a compulsion on the part of the groom to pay a certain amount to his bride.
 
